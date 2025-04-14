@@ -1,5 +1,8 @@
 ## 🌍 **PLANETA NOVA TERRA**
 
+![ChatGPT Image 14 kwi 2025, 15_23_29](https://github.com/user-attachments/assets/2cc09c8a-6338-496d-a671-524095e9c4a5)
+
+
 ### ✨ **Charakterystyka ogólna**
 
 Nova Terra to tętniąca życiem planeta pełna naturalnych bogactw, starożytnych ruin i nowoczesnych placówek badawczych. Służy jako centrum szkoleniowe dla nowych odkrywców galaktyki i pierwsza linia kontaktu z nowymi formami życia oraz minerałami.
